@@ -1,1 +1,3 @@
-# ticou.github.io
+# @Ticou (Ata amini)
+
+    Email: ata.aminie{@}.gmail.com
